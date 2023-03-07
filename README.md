@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @15520295 you can call me Sam!
 - 👀 I’m interested in money 😂
-- 🌱 I’m currently learning RPA 👍
+- 🌱 I’m currently Android Developer 👍
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me on Facebook: https://www.facebook.com/huydd.1997/ or Ig: https://www.instagram.com/huyduc.dao/
 
